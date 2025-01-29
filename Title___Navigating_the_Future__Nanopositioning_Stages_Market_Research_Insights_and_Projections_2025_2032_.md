@@ -1,8 +1,5 @@
 <!DOCTYPE html>
-<html>
-<head>
-    <title>Nanopositioning Stages Market, Global Outlook and Forecast 2025-2032</title>
-</head>
+
 <body>
 
 <h1>Nanopositioning Stages Market, Global Outlook and Forecast 2025-2032</h1>
